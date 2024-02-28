@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... nothing
 - 📫 How to reach me: ... 123456789
 - 😄 Pronouns: ... she/her
-- ⚡ Fun fact: ... I love elephants
+- ⚡ Fun fact: ... I love watching tv
 -->
